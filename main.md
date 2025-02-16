@@ -1,0 +1,1 @@
+- [Author](https://github.com/seyishi-gh) note (main) - **this is my opinion and comments.**<br> The actually objective is  write some shit 💔.
